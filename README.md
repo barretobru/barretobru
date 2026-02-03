@@ -5,7 +5,6 @@
 - 💞️ Looking to collaborate on **open-source projects** and **data-driven tools**
 - 📫 Reach me at **barretobruna189@gmail.com**
 - 😄 Pronouns: **All pronouns are welcome**
-- ⚡ Fun fact: **Star Trek is better than Star Wars** — fight me 🖖
 
 Thanks for stopping by!
 
